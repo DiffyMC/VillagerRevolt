@@ -1,3 +1,5 @@
+# Villager Revolt
+
 Do you love trapping unsuspecting villagers and forcing them to dedicate their lives to fulfilling your financial needs?
 
 **F*ck you.**
